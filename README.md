@@ -1,3 +1,3 @@
-#This is 21900663
-##Nice to meet you.
-âˆâ‰
+21500798 Seokhyeon Hong
+
+*Hi 21500798. I am 21500474*
